@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @taythemoth
-- 👀 I’m interested in coding, Valorant, Art
-- 🌱 I’m currently learning Drama, Art
+- 👀 I’m interested in coding,genshin impact, Art
+- 🌱 I’m currently learning game devolopment & Art
 - 📫 How to reach me Tay_The_Moth on insta
-- 😄 Pronouns: she/her they/them
+- 😄 Pronouns: she/her they/them he/him
 - ⚡ Fun fact: The deepest hole ever drilled by man is the Kola Superdeep Borehole (40,226 feet).
 
 <!---
